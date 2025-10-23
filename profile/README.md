@@ -20,7 +20,7 @@ Alguns de nossos clientes incluem:
 
 ## Contato
 Para mais informações ou para entrar em contato conosco:
-- Email: [admin@weedu.com.br](mailto:admin@weedu.com.br)
+- Email: [caio@weedu.com.br](mailto:caio@weedu.com.br)
 - Telefone: +55 31 9756 6070
 
 ## Acompanhe Nossas Atualizações
